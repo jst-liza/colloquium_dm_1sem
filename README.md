@@ -1,1 +1,0 @@
-# colloquium_dm_1sem
